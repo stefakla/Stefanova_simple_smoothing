@@ -1,0 +1,1 @@
+# Stefanova_simple_smoothing
